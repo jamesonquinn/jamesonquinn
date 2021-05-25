@@ -1,4 +1,4 @@
-### Jameson Quinn's MVP webpage
+### Jameson Quinn
 
 - Pronouns: He/Him
 - Languages (human): English, Español 
